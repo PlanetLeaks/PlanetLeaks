@@ -1,0 +1,2 @@
+- 👋 Siema mordo tu PlanetLeaks
+- 👀 Tu są nasze skrypty
